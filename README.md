@@ -11,3 +11,5 @@ Photo by RDNE Stock project from Pexels: https://www.pexels.com/photo/person-in-
 
 Photo by yangjunjun2: https://www.pexels.com/photo/toy-of-astronaut-7927181/
 
+Panel from Space War #2 a Public domain comic book at: https://digitalcomicmuseum.com/preview/index.php?did=6139&page=5 from the story Dr. Meades Last War.
+
